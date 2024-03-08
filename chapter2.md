@@ -1,4 +1,4 @@
-But as Aaron began to disassemble the clock and tinker with the gears, he felt a strange sense of unease wash over him. The hairs on the back of his neck stood on end, and a chill ran down his spine. He couldn't shake the feeling that something was wrong, terribly wrong.
+As Aaron began to disassemble the clock and tinker with the gears, he felt a strange sense of unease wash over him. The hairs on the back of his neck stood on end, and a chill ran down his spine. He couldn't shake the feeling that something was wrong, terribly wrong.
 
 Ignoring his instincts, Aaron continued to work on the clock, determined to fix it before nightfall. But as he tightened a loose screw, a sudden jolt of electricity shot through his body, knocking him to the ground. The townspeople gasped in horror as Aaron lay motionless on the ground, his body convulsing with each passing second.
 
